@@ -1,3 +1,3 @@
-## Hi there 👋
+# "The idiot division of Freakybob Team" - Wish
 
-## Bye there 👋
+Hello! This is for projects that wouldn't fit under Freakybob Team, but are still cool or smth.. im not really sure
