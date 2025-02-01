@@ -1,3 +1,1 @@
-# "The idiot division of Freakybob Team" - Wish
-
-Hello! This is for projects that wouldn't fit under Freakybob Team, but are still cool or smth.. im not really sure
+![image](https://github.com/user-attachments/assets/e596c345-6bec-41c2-86fb-e2e9e26ed6d1)
